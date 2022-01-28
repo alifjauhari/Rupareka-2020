@@ -1,2 +1,2 @@
-# Rupareka-2020
+# Rupareka-2022
 Project Rupareka semoga lancar Aamiin!
